@@ -1,0 +1,1 @@
+bu mening oylik imtixon saytim
